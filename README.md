@@ -134,3 +134,9 @@ This project is licensed under the MIT License.
 - **Inspiration**: Walmart’s business case studies on sales and supply chain optimization.
 
 ---
+
+
+
+
+## Linkdin**:[Follow me on Linkdin for more projects](https://www.linkedin.com/in/challa-jaipal-reddy-6a03062a3/)
+
