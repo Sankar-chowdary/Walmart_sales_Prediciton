@@ -138,5 +138,5 @@ This project is licensed under the MIT License.
 
 
 
-## Linkdin:[Follow me on Linkdin for more projects](https://www.linkedin.com/in/challa-jaipal-reddy-6a03062a3/)
+## Linkdin:[Follow me on Linkdin for more projects](https://www.linkedin.com/in/kumar-ravi-sankar-605737268?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BCFU5e1%2BORjaA7vs3Mp6XQw%3D%3D)
 
